@@ -1,1 +1,1 @@
-![aquarium](https://user-images.githubusercontent.com/448495/232630489-e44941e4-360e-46c7-91ac-227a8da2e37c.gif)
+![aquarium-066](https://github.com/rshaker/rshaker/assets/448495/715413ba-35d0-4d74-9ffc-07f2b3479680)
