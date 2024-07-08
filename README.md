@@ -1,1 +1,1 @@
-![image](https://github.com/rshaker/rshaker/assets/448495/0cc414b1-f262-43bb-8538-481a04e5cb85.gif)
+![image](https://github.com/rshaker/rshaker/assets/448495/d2f93b3e-09ca-4f85-bcaa-d4da4c7d36b3)
